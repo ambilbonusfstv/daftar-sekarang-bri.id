@@ -1,0 +1,2 @@
+akses. njcjskkwnjxkwz
+dssnsmkxks
